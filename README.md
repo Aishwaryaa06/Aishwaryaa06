@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aishwaryaa
+- 👋 Hi, I’m @Aishwarya
 - 👀 I’m interested in modern technologies
 
 
